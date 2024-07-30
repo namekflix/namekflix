@@ -1,4 +1,4 @@
-hi i am namek flix, i just did this acount because of my tecnology teacher lol.
+**hi, i am namek flix, i just did this acount because of my tecnology teacher lol.**
 
 - animator
 - artist (tradicional and digital)
@@ -16,4 +16,10 @@ hi i am namek flix, i just did this acount because of my tecnology teacher lol.
 >CARA : namekflix
 
 me asf:
+
+
 ![image](https://github.com/user-attachments/assets/29379985-9252-4cae-a1b2-b3e42cd50b82)
+
+
+![image](https://github.com/user-attachments/assets/8af218bc-059f-4115-a81d-d135a3cc41cf)
+
