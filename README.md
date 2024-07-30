@@ -4,8 +4,10 @@ hi i am namek flix, i just did this acount because of my tecnology teacher lol.
 - artist (tradicional and digital)
 - i like bread
 
--![gif](https://media1.tenor.com/m/6Dy8bQJuB3YAAAAC/falling-bread-bread.gif)
-- contacts :
+![gif](https://media1.tenor.com/m/6Dy8bQJuB3YAAAAC/falling-bread-bread.gif)
+
+
+- **contacts** :
 
 >GMAIL: flixnamek@gmail.com
 >
