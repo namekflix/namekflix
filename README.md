@@ -11,15 +11,11 @@
 
 >GMAIL: flixnamek@gmail.com
 >
->INSTAGRAM/DISCORD : @namek_flix
->
->CARA : namekflix
+>twitter: @namekflix701
 
 me asf:
 
 
 ![image](https://github.com/user-attachments/assets/29379985-9252-4cae-a1b2-b3e42cd50b82)
 
-
-![image](https://github.com/user-attachments/assets/8af218bc-059f-4115-a81d-d135a3cc41cf)
 
